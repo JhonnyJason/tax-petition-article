@@ -1,5 +1,8 @@
 # Petition: Komplette Neuentwicklung des österreichischen Steuersystems
 
+[![hackmd-github-sync-badge](https://hackmd.io/x1X8e-4FRqqNuc05vgN0nQ/badge)](https://hackmd.io/x1X8e-4FRqqNuc05vgN0nQ)
+
+
 ![](https://assets.change.org/photos/0/az/vm/RbaZvMCekDWhLNq-800x450-noPad.jpg?1619184975)
 
 Unsere Wirtschaft ist im Wandel. Für die dafür nötige Innovationsleistungen hängen wir sehr von neuen Selbstständigen und  KMUs ab - weil sie schnell und flexibel neue Geschäftsmodelle ausprobieren können. Dabei sind Arbeitslose als  potentielle Selbstständige zu sehen und nicht als Problem - sie können mit ihrer Auffassungsgabe und den daraus entstehenden Ideen auf den Wandel der Zeit reagieren. Genau zwischen Bildungsphase/Arbeitslosigkeit und dem Experiment zum erfolgreichen Geschäftsmodell passiert die effektive Innovationsleistung. Um dabei resilient gegenüber Fehlschlägen zu sein, ist es eine gute Strategie, sich breit aufzustellen und mehrere Einkommensquellen gleichzeitig zu nutzen. Und dann wird es kompliziert.
